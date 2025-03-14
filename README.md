@@ -10,4 +10,4 @@ These are some quotes that can be said to really ruin DEI.
 - "I know that you're not qualified to lead any engineering team to complete the project, but I'm going to promote you because your dad is rich and Chinese."
 - "You are clearly very qualified for the job, but this Jewish gentleman here has fought against Hamas, so he is a hero. The job goes to him, so don't take it personal."
 - "Congratulations on your new job. Fortunately for you, the company does not have any real work anymore. Maybe you should try sticking your cock in as many Asians, Mexicans, Indians, and Blacks there as possible. Don't miss out on this great opportunity."
-- 
+- "I know you're hetero and your office mate is not, because word spreads and all. I know you're a disadvantaged person that would do anything to get ahead. Maybe you should perform sex acts with him to climb the corporate ladder."
