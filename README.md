@@ -13,3 +13,4 @@ These are some quotes that can be said to really ruin DEI.
 - "All the women working in there are victims. You're a capable and persuasive man. You need to go in there and comfort all of them. This is the best white-collar job you can ever get."
 - "You're an outstanding project manager and all. But the company is being funded by Turkey and Saudi Arabia. So we're going to hire a fresh college graduate from there."
 - "You were born and raised here. But you need to speak Spanish more often while working so our diversity statistics look good."
+- "You're an Asian female with average intelligence. But if you use your effort to annoy all the Asian men and let them have sex with you, I can blackmail all of them and promote you. You're be queen of the company because of that, I promise."
