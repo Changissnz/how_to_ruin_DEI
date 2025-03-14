@@ -11,4 +11,5 @@ These are some quotes that can be said to really ruin DEI.
 - "Congratulations on your new job. Fortunately for you, the company does not have any real work anymore. Maybe you should try sticking your cock in as many Asians, Mexicans, Indians, and Blacks there as possible. Don't miss out on this great opportunity."
 - "I know you're hetero and your office mate is not, because word spreads and all. I know you're a disadvantaged person that would do anything to get ahead. Maybe you should perform sex acts with him to climb the corporate ladder."
 - "All the women working in there are victims. You're a capable and persuasive man. You need to go in there and comfort all of them. This is the best white-collar job you can ever get."
-- "You're an outstanding project manager and all. But the company is being funded by Turkey and Saudi Arabia. So we're going to hire a fresh college graduate from there." 
+- "You're an outstanding project manager and all. But the company is being funded by Turkey and Saudi Arabia. So we're going to hire a fresh college graduate from there."
+- "You were born and raised here. But you need to speak Spanish more often while working for our diversity statistics to look good."
